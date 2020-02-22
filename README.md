@@ -1,2 +1,2 @@
 # xiaoqianzizi.github.io
-个人博客
+大笨蛋琳宝
