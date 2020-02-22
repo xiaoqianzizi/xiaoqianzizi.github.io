@@ -1,2 +1,2 @@
 # xiaoqianzizi.github.io
-大笨蛋琳宝
+老公（乾宝）爱老婆（琳宝）
